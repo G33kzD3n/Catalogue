@@ -3,7 +3,7 @@
 [Islamic Books](https://t.co/luDnE7Hupo?amp=1b)  
 [Electrical Engineering Books](https://t.co/7lOyGOZTsz?amp=1)  
 [Richard P Feynman Books](https://t.co/kkR3SEj7Mj?amp=1)  
-[Comouter Scinece Books](https://t.co/QBAGBsFPmP?amp=1)  
+[Computer Science Books](https://t.co/QBAGBsFPmP?amp=1)  
 [Physics Books](https://t.co/G7TOjrKrm5?amp=1)  
 [GRE/TOEFL Books](https://t.co/6fnoEcQ5Md?amp=1)  
 [Kashmir](https://t.co/dpcrwrWqSI?amp=1)  
